@@ -13,6 +13,12 @@ Profitez d'un code promo Paris Seine de 10% : [Voir le code : PARISSEINE10 cliqu
 
 Ce code est valable pour une durée limitée, alors dépêchez-vous d’en profiter avant qu’ils ne disparaissent !
 
+### Promotion Croisière Paris
+Profitez des promotions sur les croisières à Paris : [Voir l'offre en cliquant ici](https://www.club-reduc.com/codepromoparisseine)
+
+### Bateau croisière diner en promotion
+Profitez des réductions sur les croisières diner à Paris : [Voir l'offre en cliquant ici](https://www.club-reduc.com/codepromoparisseine)
+
 ## Qui est Paris Seine ?
 ---------------------
 
@@ -40,6 +46,27 @@ Utiliser un code promo sur Paris Seine est un jeu d’enfant. Voici un guide ét
 
 Un petit conseil : combinez ces codes avec d’autres promotions en cours pour maximiser vos économies. Par exemple, profitez des soldes et ajoutez un code promo pour des réductions encore plus importantes.
 
+## Où trouver des codes promo Paris Seine Croisère ?
+------------------------------------------------
+
+Pour trouver un **code promo Paris Seine valide**, il est conseillé de consulter plusieurs sources fiables :
+
+**Site officiel et newsletter** : Visitez le site de Paris Seine et inscrivez-vous à leur newsletter pour recevoir directement les offres promotionnelles.
+**Réseaux sociaux** : Suivez Paris Seine sur Facebook, Twitter ou Instagram, où des codes promo exclusifs sont souvent partagés.
+**Sites spécialisés en bons plans** : Consultez des plateformes comme eBuyclub ou Ma-reduc aisni que notre page dédiée qui répertorient régulièrement des codes promo vérifiés.
+**Forums et groupes de discussion** : Des communautés en ligne et des groupes Facebook dédiés aux bons plans partagent parfois des codes promo à jour.
+
+En combinant ces sources, vous maximisez vos chances de trouver un code promo Paris Seine valide pour profiter de réductions intéressantes.
+
+## Pourquoi mon code promo Paris Seine ne fonctionne pas ?
+------------------------------------------------
+
+Divers éléments peuvent expliquer pourquoi votre **code promo Paris Seine** ne s’applique pas correctement
+Tout d’abord, le code peut être expiré ou ne plus être actif, car les offres promotionnelles ont souvent une durée de validité limitée. 
+Ensuite, il se peut que certaines conditions spécifiques ne soient pas remplies, comme un montant minimum d’achat, une période de réservation particulière ou un type de service ciblé. 
+Vérifiez également si le code est cumulable avec d’autres promotions ou s’il doit être utilisé en exclusivité. 
+Enfin, assurez-vous de le saisir correctement et sur le bon site, car un simple oubli ou une erreur de frappe peut empêcher son application.
+
 ## Astuces pour maximiser vos économies
 ------------------------------------
 
@@ -50,3 +77,11 @@ Si vous souhaitez tirer le meilleur parti des offres de Paris Seine, voici quelq
 *   **Comparez les offres** : Parfois, d’autres sites proposent des promotions similaires. Prenez le temps de vérifier avant de finaliser votre achat.
 
 En adoptant ces habitudes, vous pourrez non seulement économiser davantage, mais aussi être parmi les premiers à profiter des nouveautés.
+
+## Comment contacter et annuler sur Paris Seine ?
+------------------------------------
+
+Pour contacter et annuler une réservation sur Paris Seine, il vous suffit d’envoyer un e-mail à reservation@parisseine.com pour toute demande de modification ou d’annulation. 
+Bien qu’il soit également possible de joindre leur service client par téléphone pour obtenir plus d’informations, la notification écrite reste indispensable afin que la date d’annulation soit bien prise en compte. 
+Selon leur politique, si l’annulation est effectuée plus de 72 heures avant la prestation, des frais de 5€ s’appliquent ; entre 72 et 48 heures, ceux-ci s’élèvent à 50 % TTC du montant total, et moins de 48 heures avant le début de la prestation, aucun remboursement n’est envisageable. 
+Par ailleurs, si Paris Seine annule la prestation, vous pourrez reporter votre réservation dans les 18 mois suivant la date initiale, sous réserve de disponibilité.
